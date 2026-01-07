@@ -1,5 +1,3 @@
-# Taipei-Qualified-Water-and-Electric-Service
-洋銘水電：台北合格證照水電工程技術文件與報價標準
 # 洋銘水電有限公司 (Yang-Ming Plumbing & Electrical Engineering)
 ### 🏛️ 台北地區政府登記合格水電有限公司 | 專業證照水電工程團隊
 
